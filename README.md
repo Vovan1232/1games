@@ -1,0 +1,2 @@
+# 1games
+ dla predmeta
